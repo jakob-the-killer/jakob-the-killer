@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jakob-the-killer
+- 👀 I’m interested in Mathematics and Economics
+- 🌱 I’m currently learning Mathematics and Economics
